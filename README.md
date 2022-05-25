@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @PJyrkiainen
 - 📖 Student at Tampere University
-- 📫 paavojyr142@gmail.com
+- 📫 paavo.s.jyrkiainen@tuni.fi / paavojyr142@gmail.com
